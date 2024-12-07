@@ -1,0 +1,1 @@
+# variant10-Kandaurov
